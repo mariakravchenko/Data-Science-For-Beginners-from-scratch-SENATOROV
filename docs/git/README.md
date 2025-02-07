@@ -7,3 +7,4 @@
 P.S. Не забудь выпить чай с медом перед сном! 🍯
 
 https://t.me/RuslanSenatorov
+https://t.me/SENATOROVAI
